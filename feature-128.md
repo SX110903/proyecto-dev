@@ -1,0 +1,1 @@
+característica 128
